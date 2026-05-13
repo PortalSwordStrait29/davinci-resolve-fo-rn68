@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for PC | DaVinci Resolve for Windows script with DaVinci Resolve for PC | DaVinci Resolve for Windows smart Script: time-remapping &
 
 
 
